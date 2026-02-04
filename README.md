@@ -6,4 +6,4 @@ Ministrado por Danilo Arantes
 
 Senac Rio Claro
 
-02 de Fevereiro de 2026
+30 de Janeiro de 2026
